@@ -1,3 +1,0 @@
-Hello jyoonchu
-Aloha
-Aloha
